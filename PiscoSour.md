@@ -5,7 +5,7 @@ Ingredients
 -----------
 * 3.5 oz Pisco
 * 0.5 oz simple syrup
-* 0.75 oz fresh lemon juice
+* 1.00 oz fresh lemon juice
 
 Preparation
 -----------
